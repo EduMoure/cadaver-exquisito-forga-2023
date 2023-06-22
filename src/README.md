@@ -4,6 +4,7 @@
 <!-- milabgrundy -->
 La tranquila y pintoresca villa de Ashbourne no había sido testigo de tanta excitación en años. La noticia de la llegada de Mr. McGregor, un hombre enigmático y de renombre en los círculos aristocráticos, se propagó como un reguero de pólvora entre sus habitantes. 
 La majestuosa carroza tirada por elegantes corceles negros se detuvo frente a la imponente mansión que había permanecido deshabitada durante décadas. La puerta principal se abrió lentamente, revelando la figura imponente de Mr. McGregor. Vestido con un impecable traje oscuro y portando un sombrero de copa, su mirada penetrante y su aire de misterio cautivaron a todos los presentes. 
+La llegada de aquel enigmático personaje prometía alterar la apacible cotidianidad del pueblo, despertando la curiosidad y la intriga en cada rincón. ¿Cuáles serían sus verdaderas intenciones al elegir Ashbourne como su nuevo hogar? El destino de la villa parecía estar ligado irremediablemente a la presencia de Mr. McGregor, y solo el tiempo revelaría los secretos que este enigmático personaje ocultaba bajo su imponente fachada.
 ## Os extraños ruidos do cuarto de Mr McGregor
 <!--CaamanhoPampin-->
 McGregor traspasou os vieiros de Ashbourne a casa estarrexeu co enorme suspiro qu provocou a apertura do portón. McGregor avanzou decidido polo hall, escuro, cheo de lixo e anos pero orgulloso aínda, con esa soberbia de indiano empobrecido. 
