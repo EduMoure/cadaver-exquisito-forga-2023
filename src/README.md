@@ -17,6 +17,7 @@
 <!-- EduMoure -->
 ## Rescatando a Mr McGregor
 <!-- olaia-recalde -->
+Fíxose un silencio na fragua. Os cadelos marcharon deixando atrás a Mr McGregor.
 ## Mr McGrego amosase arepentido
 <!-- 0IvanTC -->
 ## Bye, bye, Mr McGregor
