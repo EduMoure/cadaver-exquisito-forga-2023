@@ -2,6 +2,7 @@
 
 ## A chegada de Mr McGregor
 <!-- milabgrundy -->
+La tranquila y pintoresca villa de Ashbourne no había sido testigo de tanta excitación en años. La noticia de la llegada de Mr. McGregor, un hombre enigmático y de renombre en los círculos aristocráticos, se propagó como un reguero de pólvora entre sus habitantes. 
 ## Os extraños ruidos do cuarto de Mr McGregor
 <!--CaamanhoPampin-->
 McGregor traspasou os vieiros de Ashbourne a casa estarrexeu co enorme suspiro qu provocou a apertura do portón. McGregor avanzou decidido polo hall, escuro, cheo de lixo e anos pero orgulloso aínda, con esa soberbia de indiano empobrecido. 
