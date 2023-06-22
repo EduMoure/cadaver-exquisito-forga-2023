@@ -1,5 +1,4 @@
 # O exquisito cadaver de Mr McGregor
-![Mr McGregor](./resources/mcgregor.jpeg)
 
 ## A chegada de Mr McGregor
 <!-- milabgrundy -->
@@ -19,5 +18,6 @@
 <!-- olaia-recalde -->
 ## Mr McGrego amosase arepentido
 <!-- 0IvanTC -->
+Logo de ser rescatado polo oso, Mr Mcgregor pediulle perdón, pois sabía que se había equivocado o matar os pequenos osiños daquel que o había rescatado. 
 ## Bye, bye, Mr McGregor
 <!-- Carmen100f -->
