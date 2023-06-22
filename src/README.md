@@ -21,3 +21,7 @@
 <!-- 0IvanTC -->
 ## Bye, bye, Mr McGregor
 <!-- Carmen100f -->
+
+
+El señor McGregor, conocido por su genio irascible y su amor por su jardín, decidió tomar una siesta para aliviar su estrés acumulado. Sin embargo, su sueño tranquilo se convirtió en un despertar explosivo que desafiaría su paciencia y su sentido del humor.
+
