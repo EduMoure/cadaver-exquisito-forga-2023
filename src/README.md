@@ -20,6 +20,8 @@
 Fíxose un silencio na fragua. Os cadelos marcharon deixando atrás a Mr McGregor.
 
 Ferido, enlamado e coa roupa rachada Mr McGregor pensaba en como podería saír do socabón no que se atopa, berraba pedindo axuda unha e outra vez agardando que alguén o escoitase e logrouno.
+
+De súpeto a cabeza dun urso xigantesco asomou. Mr McGregor atrapado no furado non tiña por onde fuxir, non lle cabía máis medo no corpo, pechou os ollos todo o forte que puido, encolleuse facéndose un nó de lá e agardou pola morte.
 ## Mr McGrego amosase arepentido
 <!-- 0IvanTC -->
 ## Bye, bye, Mr McGregor
