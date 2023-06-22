@@ -18,6 +18,8 @@
 ## Rescatando a Mr McGregor
 <!-- olaia-recalde -->
 Fíxose un silencio na fragua. Os cadelos marcharon deixando atrás a Mr McGregor.
+
+Ferido, enlamado e coa roupa rachada Mr McGregor pensaba en como podería saír do socabón no que se atopa, berraba pedindo axuda unha e outra vez agardando que alguén o escoitase e logrouno.
 ## Mr McGrego amosase arepentido
 <!-- 0IvanTC -->
 ## Bye, bye, Mr McGregor
