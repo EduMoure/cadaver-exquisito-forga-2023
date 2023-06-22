@@ -4,7 +4,7 @@
 ## A chegada de Mr McGregor
 <!-- milabgrundy -->
 ## Os extraños ruidos do cuarto de Mr McGregor
-McGregor traspasou os vieiros de Ashbourne a casa estarrexeu co enorme suspiro qu provocou a apertura do portón. McGregor avanzou decidido polo hall, escuro, cheo de lixo e anos pero orgulloso aínda, con esa soberbia de indiano empobrecido. O chan de longas táboas de carballo xa canso e escurecido polo paso do tempo e o abandono, laiaba e renxía baixo os pa 
+McGregor traspasou os vieiros de Ashbourne a casa estarrexeu co enorme suspiro qu provocou a apertura do portón. McGregor avanzou decidido polo hall, escuro, cheo de lixo e anos pero orgulloso aínda, con esa soberbia de indiano empobrecido. O chan de longas táboas de carballo xa canso e escurecido polo paso do tempo e o abandono, laiaba e renxía baixo os pasos. O que comezara como unha leve protesta da medira vella, dos insectos perturbados pola bota implacábel de McGregor, virou unha onda de berros que saían afogados entre os tabiques raídos, frémitos imposíbeis de casucdas e vermes, que parecían maldicidas polo dn da voz, gritos case humanos que parecían chamar por McGregor, xusto aí, tras a porta do seu cuarto.
 ## Mr McGregor baixa a comer
 <!-- marisolpa -->
 ## Mr McGregor es os platos sucios
