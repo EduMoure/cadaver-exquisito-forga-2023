@@ -6,7 +6,7 @@ Le atentamente este documento.
 ## Preparando a contorna
 Clona o repositorio no teu ordenador.
 ```sh
-git clone https://github.com/ Diseno-de-Aplicaciones-Web/cadaver-exquisito-forga-2023.git
+git clone https://github.com/Diseno-de-Aplicaciones-Web/cadaver-exquisito-forga-2023.git
 ```
 Le atentamente o arquivo en [`./src/README.md`](./src/README.md).
 
