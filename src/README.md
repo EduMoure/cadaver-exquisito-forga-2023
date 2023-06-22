@@ -63,3 +63,31 @@ Pero Mr McGregor, non quería facerlle dano o seu salvador, pois sabía que sen 
 <!-- Carmen100f -->
 
 
+# O exquisito cadaver de Mr McGregor
+![Mr McGregor](./resources/mcgregor.jpeg)
+
+## A chegada de Mr McGregor
+<!-- milabgrundy -->
+## Os extraños ruidos do cuarto de Mr McGregor
+<!-- CaamanhoPampin -->
+## Mr McGregor baixa a comer
+<!-- marisolpa -->
+## Mr McGregor es os platos sucios
+<!-- lugesbe -->
+## A accidentada siesta de Mr McGregor
+<!-- ffanecaa -->
+## Mr McGregor sae pasear polo campo
+<!-- man80vil -->
+## Mr McGregor e a camada de cadelos piollentos
+<!-- EduMoure -->
+## Rescatando a Mr McGregor
+<!-- olaia-recalde -->
+## Mr McGrego amosase arepentido
+<!-- 0IvanTC -->
+## Bye, bye, Mr McGregor
+<!-- Carmen100f -->
+Mr McGregor decide recoger los cachorros los mete en un camión y llevarselos al campo , no confia que la ciudad sea un buen lugar para ellos, durante el trayecto nocturno los cachorros duermen placidamente pero al llegar la madrugada se despiertan con hambre y comienza a oirse un alboroto dento del camión.
+
+Al cruzarse con una patrulla policial le hacen detenerse y al ver su cara de preocupación le piden que abra las puertas del camión, trata de convencerles que no es buena idea, pero el guardia le obliga ... los cachorros salen corriendo desesperados y se pierden por el bosque cercano.
+
+Mr McGregor se le vió discutir con el policia acalaoradamente, dejó el camión se fué detras de los cachorros ..... surgió una gran tormente en ese instante, un estruendoso trueno atronó el lugar acompañado de una gran luminosidad... y no se ha vuelto a saber de él.
