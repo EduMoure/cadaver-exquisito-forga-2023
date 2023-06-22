@@ -2,8 +2,12 @@
 
 ## A chegada de Mr McGregor
 <!-- milabgrundy -->
+La tranquila y pintoresca villa de Ashbourne no había sido testigo de tanta excitación en años. La noticia de la llegada de Mr. McGregor, un hombre enigmático y de renombre en los círculos aristocráticos, se propagó como un reguero de pólvora entre sus habitantes. 
+La majestuosa carroza tirada por elegantes corceles negros se detuvo frente a la imponente mansión que había permanecido deshabitada durante décadas. La puerta principal se abrió lentamente, revelando la figura imponente de Mr. McGregor. Vestido con un impecable traje oscuro y portando un sombrero de copa, su mirada penetrante y su aire de misterio cautivaron a todos los presentes. 
+La llegada de aquel enigmático personaje prometía alterar la apacible cotidianidad del pueblo, despertando la curiosidad y la intriga en cada rincón. ¿Cuáles serían sus verdaderas intenciones al elegir Ashbourne como su nuevo hogar? El destino de la villa parecía estar ligado irremediablemente a la presencia de Mr. McGregor, y solo el tiempo revelaría los secretos que este enigmático personaje ocultaba bajo su imponente fachada.
 ## Os extraños ruidos do cuarto de Mr McGregor
-McGregor traspasou os vieiros de Ashbourne a casa estarrexeu co enorme suspiro qu provocou a apertura do portón. McGregor avanzou decidido polo hall, escuro, cheo de lixo e anos pero orgulloso aínda, con esa soberbia de indiano empobrecido. 
+<!--CaamanhoPampin-->
+McGregor traspasou os vieiros de Ashbourne a casa estarrexeu co enorme suspiro que provocou a apertura do portón. McGregor avanzou decidido polo hall, escuro, cheo de lixo e anos pero orgulloso aínda, con esa soberbia de indiano empobrecido. 
 
 O chan de longas táboas de carballo xa canso e escurecido polo paso do tempo e o abandono, laiaba e renxía baixo os pasos. O que comezara como unha leve protesta da medira vella, dos insectos perturbados pola bota implacábel de McGregor, virou unha onda de berros que saían afogados entre os tabiques raídos, frémitos imposíbeis de cascudas e vermes, que parecía foran malditas de súpeto co don da voz. 
 
@@ -60,7 +64,9 @@ Pero aquel oso había estado seguindo o asesino dos seus fillos, pois un pequeno
 Pero Mr McGregor, non quería facerlle dano o seu salvador, pois sabía que sen o oso, habría sido pasto daquela jauría, e entendía os motivos daquel oso para estar tan enfadado, o único que puido facer era fuxir e buscar a maneira de sobrevivir. Mentras fuxía, escoitou un gruñido de dor, a pesar do medo Mr McGregor decidíu dar a volta e ver que acontecera naquel lugar. Entón, atopou o oso atrapado nunha trampa de animais, o oso non paraba de facer ruidos de dor, mirou para Mr McGregor cos ollos enchidos en lágrimas, recordando os seus oseznos mortos, sabendo que aquel home acabaría ca súa vida, igual que fixera cos seus pequenos, pero Mr McGregor consciente do dano que había feito, liberou a aquel oso, que xa non estaba enfadado, levouno a súa cabana e alí coudou del, curoulle a pata e doulle de comer ata que aquel oso puido volver a sobrevivir só. Aquel acto non iba a facer que os pequenos oseznos resucitaran, pois o feito xa non se podía cambiar, pero aquel oso douse conto que aquel home había cambiado, e Mr Mcgregor douse conta que ata o animal mais perigoso, pode salvarche a vida, e así, deixou a súa vida de caza para protexer o que un día tanto perseguía.
 ## Bye, bye, Mr McGregor
 <!-- Carmen100f -->
-y se encuentra un oso hormiguero
-!que miedo!!....Oh sorpresa....es el oso yogui
-Yo: Hola yogui te va ...sigues viviendo en yellowstone?
-yogui: Non agora vivo no Caurel
+
+Mr McGregor decide recoger los cachorros los mete en un camión y llevarselos al campo , no confia que la ciudad sea un buen lugar para ellos, durante el trayecto nocturno los cachorros duermen placidamente pero al llegar la madrugada se despiertan con hambre y comienza a oirse un alboroto dento del camión.
+
+Al cruzarse con una patrulla policial le hacen detenerse y al ver su cara de preocupación le piden que abra las puertas del camión, trata de convencerles que no es buena idea, pero el guardia le obliga ... los cachorros salen corriendo desesperados y se pierden por el bosque cercano.
+
+Mr McGregor se le vió discutir con el policia acalaoradamente, dejó el camión se fué detras de los cachorros ..... surgió una gran tormente en ese instante, un estruendoso trueno atronó el lugar acompañado de una gran luminosidad... y no se ha vuelto a saber de él.
