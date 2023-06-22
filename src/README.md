@@ -1,4 +1,5 @@
 # O exquisito cadaver de Mr McGregor
+![Mr McGregor](./resources/mcgregor.jpeg)
 
 ## A chegada de Mr McGregor
 <!-- milabgrundy -->
