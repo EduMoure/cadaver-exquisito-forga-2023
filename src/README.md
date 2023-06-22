@@ -23,5 +23,6 @@
 <!-- Carmen100f -->
 
 
-El señor McGregor, conocido por su genio irascible y su amor por su jardín, decidió tomar una siesta para aliviar su estrés acumulado. Sin embargo, su sueño tranquilo se convirtió en un despertar explosivo que desafiaría su paciencia y su sentido del humor.
+Mentres durmía plácidamente, un grupo de traviesos coellos, cansos das restricións do xardín de McGregor, decidiron comezar a xogar e facer travesuras. Saltaban e correteaban por todas partes, sen prestar atención á presenza do señor McGregor durmindo.
 
+De súpeto, un deles tropeza cunha ferramenta esquecida no xardín, causando un estrondo que esperta ao señor McGregor de sobresalto. Confundido e desorientado, levántase dun brinco e mira ao seu redor, percibindo a intrusión dos coellos no seu xardín.
