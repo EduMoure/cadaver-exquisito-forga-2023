@@ -23,3 +23,5 @@
 <!-- Carmen100f -->
 y se encuentra un oso hormiguero
 !que miedo!!....Oh sorpresa....es el oso yogui
+Yo: Hola yogui te va ...sigues viviendo en yellowstone?
+yogui: Non agora vivo no Caurel
