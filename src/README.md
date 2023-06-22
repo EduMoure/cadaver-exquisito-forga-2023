@@ -3,6 +3,7 @@
 ## A chegada de Mr McGregor
 <!-- milabgrundy -->
 ## Os extraños ruidos do cuarto de Mr McGregor
+<!--CaamanhoPampin-->
 McGregor traspasou os vieiros de Ashbourne a casa estarrexeu co enorme suspiro qu provocou a apertura do portón. McGregor avanzou decidido polo hall, escuro, cheo de lixo e anos pero orgulloso aínda, con esa soberbia de indiano empobrecido. 
 
 O chan de longas táboas de carballo xa canso e escurecido polo paso do tempo e o abandono, laiaba e renxía baixo os pasos. O que comezara como unha leve protesta da medira vella, dos insectos perturbados pola bota implacábel de McGregor, virou unha onda de berros que saían afogados entre os tabiques raídos, frémitos imposíbeis de cascudas e vermes, que parecía foran malditas de súpeto co don da voz. 
