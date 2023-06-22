@@ -6,7 +6,7 @@ Le atentamente este documento.
 ## Preparando a contorna
 Clona o repositorio no teu ordenador.
 ```sh
-git clone https://github.com/ Diseno-de-Aplicaciones-Web/cadaver-exquisito-forga-2023.git
+git clone https://github.com/Diseno-de-Aplicaciones-Web/cadaver-exquisito-forga-2023.git
 ```
 Le atentamente o arquivo en [`./src/README.md`](./src/README.md).
 
@@ -42,7 +42,7 @@ git merge develop
 ```
 Outro xeito de facer a maniobra anterior sería:
 ```sh
-git pull origin develop
+
 ```
 É posible que neste momento Git te indique que existen conflictos entre os contidos que aportas e os aportados por alguén máis. __Tómate o tempo necesario para solucionalo__. Se é necesario busca axuda e pide a cooperación da persoa autora dos contidos cos que se producen conflictos. 🤝
 
